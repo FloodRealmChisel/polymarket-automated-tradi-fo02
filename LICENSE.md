@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket custom Strategy: prediction-market-scanning & high-frequency-trading, the #1 strategy. Includes prediction-market-scanning and
 
 
 
